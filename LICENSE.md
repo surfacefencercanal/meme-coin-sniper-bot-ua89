@@ -1,4 +1,4 @@
-# 
+# Get the ultimate meme coin sniper bot with MEV-optimized MEV Bot for meme coin sniper bot | low-cap-gem-detection & front-running. Featuring low-cap-gem-detection and
 
 
 
